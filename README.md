@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://imgflip.com/memetemplate/111564446/initial-d"  />
+
 
 ###
 
