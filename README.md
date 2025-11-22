@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://tenor.com/view/initiald-car-gif-5414495"  />
+<img align="right" height="150" src="https://imgflip.com/memetemplate/111564446/initial-d"  />
 
 ###
 
